@@ -1,2 +1,2 @@
 # endylarge
-learning 
+leaning. 
